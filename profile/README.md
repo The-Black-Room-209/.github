@@ -19,7 +19,7 @@ The Black Room is an exclusive trading mentorship platform designed to transform
 * **Community Engagement:** Join a network of like-minded traders for support and collaboration.
 * **Direct Mentorship:** Receive personalized feedback and guidance from Liam Black himself.
 
-[Join The Black Room Now](https://kelexbawz.com/theblackroom)
+[Join The Black Room Now](https://whop.com/theblackroom?a=kelechienwere1234)
 
 ---
 
@@ -33,7 +33,7 @@ The Black Room offers a yearly subscription at \$2,997.00. While this may seem s
 | ----------------- | --------------- | ----------------------------------------------------------------- |
 | Annual Membership | \$2,997.00/year | Live sessions, content vault, community access, direct mentorship |
 
-[Join The Black Room Now to Start Your Transformation](https://kelexbawz.com/theblackroom)
+[Join The Black Room Now to Start Your Transformation](https://whop.com/theblackroom?a=kelechienwere1234)
 
 ---
 
@@ -54,7 +54,7 @@ The Black Room is tailored for:
 * **Community Support:** Collaborate with a network of traders to share insights and strategies.
 * **Expert Mentorship:** Gain direct access to Liam Black for personalized guidance.
 
-[Join The Black Room Now to Unlock Your Trading Potential](https://kelexbawz.com/theblackroom)
+[Join The Black Room Now to Unlock Your Trading Potential](https://whop.com/theblackroom?a=kelechienwere1234)
 
 ---
 
@@ -91,4 +91,4 @@ The Black Room boasts a 5.0-star rating from 18 reviews on Whop.com. Users prais
 
 The Black Room offers a comprehensive trading mentorship experience led by an experienced trader. Its combination of live trading, educational resources, and community support makes it a valuable investment for serious traders.
 
-[Join The Black Room Now to Transform Your Trading Journey](https://kelexbawz.com/theblackroom)
+[Join The Black Room Now to Transform Your Trading Journey](https://whop.com/theblackroom?a=kelechienwere1234)
